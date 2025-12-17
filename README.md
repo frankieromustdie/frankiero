@@ -1,4 +1,4 @@
-# frankiero
+# frankieromustdie
 
 <p align="center">
  ${\textsf{\color{#c7382e} i don't bite, but you can't believe it .ᐟ}}$
