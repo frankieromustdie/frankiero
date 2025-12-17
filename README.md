@@ -13,7 +13,7 @@
  ${\textsf{\color{#b5b5b5}c/h please! dnf under fifteen. autistic af.}}$
 </p>   
   <p align="center">
-    <a href="https://whatacatch.straw.page/">straw</a> , rentry [ wip ]
+    <a href="https://ginjoints.straw.page/">straw</a> , rentry [ wip ]
 </p>  
   <p align="center">
       <img src="https://files.catbox.moe/fm055m.gif" width="75"> <img src="https://files.catbox.moe/q14st0.png" width="75"> <img src="https://files.catbox.moe/jlve5c.gif" width="75">
